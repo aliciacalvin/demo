@@ -1,0 +1,1 @@
+You must watch lectures before you demo.
